@@ -1,4 +1,4 @@
-# 生命的话
+# 生命粮仓
 
 [倪柝声文集](https://lifegranary.github.io/nee/)
 
